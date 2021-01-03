@@ -1,2 +1,4 @@
-# White-Code
-TEXT ANIMATION 
+Subscribe
+
+
+TEXT ANIMATION BY SENAY!!!
